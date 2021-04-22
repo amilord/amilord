@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help and have been practicing algorithm challenges!!! Those problems always trip me up lol!
-- 💬 Ask me about my 
+- 💬 Ask me about my transition to Veganism! Im still trying to figure it out. 
 - 📫 How to reach me: connect with me on linkedin or twitter... (links in my Bio)!
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I taught English in Guatemala for a month when I was 17... that was over 12 years ago!

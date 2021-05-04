@@ -1,8 +1,8 @@
 
 
 ### Hi there, Im Asianna Milord a Software Engineer curently employed at Resilient Coders! 👋
-- 🔭 I’m currently working on My Demo Day Project! 
-- 🤔 I’m looking for help and have been practicing algorithm challenges!!! Those problems always trip me up lol!
+- 🔭 I’m currently working on My Demo Day Project "Power Thoughts"! 
+- 🤔 I have been practicing algorithm challenges!!! Those problems always trip me up lol!
 - 💬 Ask me about my transition to Veganism! Im still trying to figure it out. 
 - 📫 How to reach me: connect with me on linkedin or twitter... (links in my Bio)!
 - 😄 Pronouns: she/her/hers
